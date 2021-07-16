@@ -1,6 +1,6 @@
 Hi there! 👋
 <br> I’m @Moondust2365
-<br> 🇵🇭 Filipino | Ilagan City, Philippines | He/She/They | Ambivert | Junior Highschool Student | YouTuber
+<br> 🇵🇭 Filipino | Ilagan City, Philippines | He/She/They | Ambivert | Junior Highschool Student | YouTuber | Artist, Writer, Singer | Brony, Furry, AB, etc. |
 - 👀 I’m interested in animation, coding, writing, and a bunch of other stuff.
 - 🌱 I’m currently learning HTML and CSS (yeah, I know, I'm a noob lol)
 - 📫 How to reach me:
